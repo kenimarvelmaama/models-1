@@ -1,4 +1,5 @@
 <!--- 0. Title -->
+Lutolofi maama and KENI MARVEL MAAMA CEO CO FOUNDER OF THIS INFORMATION OF THIS INFORMATION OF THIS product for learning knowledge based inception OF computer interface 
 # Inception V3 Int8 inference
 
 <!-- 10. Description -->
